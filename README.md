@@ -17,7 +17,7 @@
 
 All users can activate the Pro features on any machine for 7 days using this universal key:
 
-LSTPRO-KRJES-QKMJN-CVSVC-SJFAU-YS2FL-F6DMQ-JSIQY-TSNKD-PRIHY-NZVIU-2EKN2-GIE
+TRIALKEYTRIALKEY
 
 by
 Agrisakthi Marketplace Private Limited
